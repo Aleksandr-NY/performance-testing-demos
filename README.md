@@ -59,8 +59,8 @@
 ---
 
 ### 💬 **Contact**
-📧 aleksandr.qa.performance@gmail.com  
-🌐 [Upwork Profile](#)  
+📧 aleksandr.qa.performance@outlook.com  
+🌐 https://www.upwork.com/freelancers/~017424f50f09704a8c?mp_source=share
 🤝 [Contra Profile](#)
 
 ---
